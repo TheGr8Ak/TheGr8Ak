@@ -1,4 +1,4 @@
-# 👋 Hi, I'm TheGr8Ak
+# 👋 Hi, I'm Aaryaman Kattali
 
 ## 👨‍🎓 Student
 
